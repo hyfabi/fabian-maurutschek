@@ -9,7 +9,7 @@ well go away...
 I guess you want to stay huh?
 
 Okay however, Im Fabi 19 and i do a little programming.
-I could make a giant list of all programminglanguages i ever touched but idc. Im kinda good at node (web basics bruh), JAVA and C#. 
+I could make a giant list of all programminglanguages i ever touched (like everyone else) but idc. Im kinda good at node (web basics bruh), JAVA and C# (like really fine and i dont mean that i just touched them). 
 
 Currently im in a programming school and i really hope to get out soon. (Its very annoying because i like programming and not the other trash they want to teach me)
 
